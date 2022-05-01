@@ -11,7 +11,7 @@
 * 🍃 Discord: 𝓥 𝓲 𝕓  ̷e̷  𝓼 ᵒʳⁱᵍⁱⁿᵃˡ#1025
 * 🍁 Twitter: none
 * 🍂 Twitch: none
-* 💫 YouTube: not yet
+* 💫 YouTube: none
 
 }---------------------------------- Active Projects ------------------------------------{
 
